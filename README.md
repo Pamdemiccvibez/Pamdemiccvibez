@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... everything 
 - 📫 How to reach me ...squaralee@gmail.com
 - 😄 Pronouns: ...ima girl
-- ⚡ Fun fact: ...my grandfather was the inventor if the Iron men classics
+- ⚡ Fun fact: ...my grandfather was the inventor of the Iron men classics
 
 <!---
 Pamdemiccvibez/Pamdemiccvibez is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
